@@ -8,3 +8,8 @@
 #### 
 
 ~~strike~~
+
+
+
+
+![image iza piano](IMG_1361.JPG)
